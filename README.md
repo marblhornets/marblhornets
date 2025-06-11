@@ -3,14 +3,6 @@
 </p>  ⠀
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/8bdk8t.png)
+![](https://files.catbox.moe/8bdk8t.png)
 
-
-<p align="center">
-BeatzzㅤㅤorㅤㅤSean
-</p>
-<p align="center">
-Heㅤㅤ/ㅤㅤIt
-</p>
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/jvujeb.png) + ![](https://files.catbox.moe/n1qmlb.png) + ![](https://files.catbox.moe/7rao7n.png)
+![](https://files.catbox.moe/jvujeb.png) + ![](https://files.catbox.moe/n1qmlb.png) + ![](https://files.catbox.moe/7rao7n.png)
