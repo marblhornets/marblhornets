@@ -3,6 +3,5 @@
 </p>  ⠀
 
 
-![](https://files.catbox.moe/8bdk8t.png)
 
 ![](https://files.catbox.moe/jvujeb.png) + ![](https://files.catbox.moe/n1qmlb.png) + ![](https://files.catbox.moe/7rao7n.png)
